@@ -6,4 +6,3 @@
 ![jpddcgb89ow](https://user-images.githubusercontent.com/55282174/216810534-41920d11-68ea-420a-8b19-4bb36f8325c3.jpg)
 //user-images.githubusercontent.com/55282174/216810526-c6760ca8-fd15-4b9b-9ed5-6ecc596836a0.png)
 1c.jpg)
-
